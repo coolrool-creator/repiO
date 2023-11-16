@@ -12,3 +12,5 @@ enter
 tank
 enemy
 tru
+alpi
+gerd
