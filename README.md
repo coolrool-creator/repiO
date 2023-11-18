@@ -14,3 +14,5 @@ enemy
 tru
 alpi
 gerd
+flod
+mem
