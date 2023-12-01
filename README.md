@@ -20,3 +20,6 @@ abys
 88''66
 k9
 f16
+gigi its cosmetics
+aravia professional
+histomer
