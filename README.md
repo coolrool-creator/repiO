@@ -23,3 +23,4 @@ f16
 gigi its cosmetics
 aravia professional
 histomer
+gogogo strk
