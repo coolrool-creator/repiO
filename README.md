@@ -42,3 +42,6 @@ janssen
 klapp
 gehwol gerlazan
 likoberon
+jigott
+moroccanoil
+lisap
