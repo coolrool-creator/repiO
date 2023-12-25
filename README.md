@@ -45,3 +45,6 @@ likoberon
 jigott
 moroccanoil
 lisap
+new peel line
+TIGI GIGI
+mesopharm pharma
