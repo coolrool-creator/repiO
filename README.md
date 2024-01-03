@@ -1,8 +1,8 @@
 for all #repiO
-farm
-dubari
+farm dram pram
+dubari moonb
 welcome
-public
+public kolp
 miui
 watch
 rollapp
