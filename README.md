@@ -4,16 +4,16 @@ dubari moonb
 welcome
 public kolp
 miui
-watch
+watch 66
 rollapp
 or rollup
-multi
+multi tull professional
 enter
-tank
+tank 500
 enemy
 tru
 alpi
-gerd
+gerd gerb
 flod
 mem
 abys
