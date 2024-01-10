@@ -1,15 +1,15 @@
 for all #repiO
 farm dram pram
-dubari moonb
-welcome
+dubari moonb gaming
+welcome scrachit
 public kolp
-miui
+miui premium
 watch 66
 rollapp
 or rollup
 multi tull professional
 enter
-tank 500
+tank 500 max
 enemy
 tru
 alpi
