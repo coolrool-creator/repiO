@@ -1,5 +1,5 @@
-for all #repiO
-farm dram pram
+for all #repiO keyword
+farm dram pram kram
 dubari moonb gaming
 welcome scrachit
 public kolp
