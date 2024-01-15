@@ -33,11 +33,11 @@ apivita
 bioderma
 yon-ka
 wellderma
-esthetic hous
+esthetic house
 elizavecca
 etude house
 hydropeptid
-atopi cream
+atopi cream redness calm
 janssen
 klapp
 gehwol gerlazan
@@ -48,3 +48,4 @@ lisap
 new peel line
 TIGI GIGI
 mesopharm pharma
+inpedimenta avadacedavra imperio
