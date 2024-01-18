@@ -5,14 +5,14 @@ welcome scrachit
 public kolp
 miui premium
 watch 66
-rollapp
+rollapp bus
 or rollup
 multi tull professional
 enter
 tank 500 max
 enemy
-tru
-alpi
+tru shut king silver
+alpi brogi
 gerd gerb
 flod
 mem
