@@ -2,8 +2,8 @@ for all #repiO keyword
 farm dram pram kram
 dubari moonb gaming
 welcome scrachit
-public kolp
-miui premium
+public kolp daily mission
+miui premium yoga
 watch 66
 rollapp bus
 or rollup
@@ -22,11 +22,11 @@ k9
 f16
 gigi its cosmetics
 aravia professional
-histomer
+histomer biogena
 gogogo strk
 time to grow, sorry
 belnatur
-bouticle
+bouticle finistere
 constant delight
 mesoderm
 apivita
@@ -49,3 +49,4 @@ new peel line
 TIGI GIGI
 mesopharm pharma
 inpedimenta avadacedavra imperio
+etude house
