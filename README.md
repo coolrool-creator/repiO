@@ -56,3 +56,5 @@ hahead Mostafafar — A Thousand Years Captain Joz — Finger Licking ES_Tavern 
 Sharabina — Tere Bina Sathi Sharabina — Jaan Suraj Nepal — Tarangini Tarshehnai Esraj Looking for Perfection
 Bishki — Jaan — Remix — No Lead Vocals Omri Dehan — Hypermercial Suraj Nepal — Kantipuri Edge of the Infinite Universe
 Kona Sutra Schultz BTC Merida Salsa
+The code of control of the internal dynamic resources of the module is completely renovated. You will then have to look if there is source code available in the internet and compile the driver yourself. 
+The relevant fault code can be called up by pressing the information button at the bottom right of the screen.
