@@ -1,5 +1,5 @@
-for all #repiO keyword
-farm dram pram kram
+for all #repiO
+@farzad-845 @lysandroserik @priscbaum @ABusyHippie @summit588 @stakeget @mxcl
 dubari moonb gaming notification dashboard
 welcome scrachit dan rasmussen ted seides santocha
 public kolp daily mission
